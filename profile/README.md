@@ -3,7 +3,7 @@
 **Retro Bowl Unblocked Game: A Nostalgic Football Experience**
 # [Play Game!](https://lesson1.site/)
 
-# [Play Game!](https://magar-io.com/)
+# [Play Game!](https://1lesson.guru/)
 
 
 <a href="https://retrobowl-2.pages.dev"><img src="https://clearcache.store/games.png"></a>
